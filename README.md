@@ -6,3 +6,6 @@ I am 26 yo economics grad, unemployed, aiming at series 65, CFA CHARTER HOLDER, 
 Losing my mind. 
 
 Changes logged and documented elsewhere. Changes for the good, mostly for the better and the feeling of pure honesty and love is incredible! Basically!
+
+
+ on mobile buttons tripping often?
